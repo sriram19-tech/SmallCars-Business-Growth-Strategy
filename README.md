@@ -11,4 +11,4 @@ Business growth proposal for a used car dealership.
 - Short-Term Growth Plan 
 - Long-Term Growth Plan
 
-Prepared By: Sri Ram
+Prepared By: Sriram S 
